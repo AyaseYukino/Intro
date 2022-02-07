@@ -1,4 +1,4 @@
-# English Ver. Self Introduction
+# English Self Introduction
 ## 0. Basic Information
 - From China Mainland
 - University student planning study abroad
