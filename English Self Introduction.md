@@ -9,7 +9,6 @@
 - Love anime and comics
 - History lover
 - Politics lover
-- Know a bit of 「Keyboard Politics」
 
 ### Otaku/ACGN related
 - A fan of VOCALOID
